@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Lucas Lopes - @fenixfortal3d
+- 👀 I’m interested in 3D animation, modeling, sculpture 3D, concept design 2D | 3D and programing!
+- 🌱 I’m currently learning HTML 5 and CSS 3
+- 📫 How to reach me on lucasllima.3d@gmail.com
